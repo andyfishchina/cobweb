@@ -8,7 +8,7 @@
 
 # claw cloud 使用教程(视频)
 
-趁现在还有热度, 放个 claw cloud 的 aff 注册链接: https://console.run.claw.cloud/signin?link=TVY0NDGJPJWR
+趁现在还有热度, 放个 claw cloud 的 aff 注册链接: https://console.run.claw.cloud/signin?link=9Z77X9S51B0G
 
 https://github.com/user-attachments/assets/767cf8e4-6881-4235-9931-339d54946ff6
 
